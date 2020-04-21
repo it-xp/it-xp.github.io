@@ -11,6 +11,7 @@ Between mountains and Sea, clean ecology, food is live health,
 
 Forests of junipper and cedar, 
 
+<p><br/></p>
 
 Between cultured and kind common people, 
 
@@ -20,7 +21,7 @@ Attitude to guests, to themselves,
 
 as a spiritual art, 
 
-
+<p><br/></p>
 
 And we always so happy to other kind people
 
@@ -30,7 +31,7 @@ We are do'nt understand Universe as well
 
 We are "little" Giants.
 
-
+<p><br/></p>
 
 And if each in humanity, find self kind and reasonable way
 
@@ -40,6 +41,7 @@ Rise by souls enpowered, turning away from hell
 
 Mutual understanding - most important science.
 
+<p><br/></p>
 ---
 
 
