@@ -1,6 +1,7 @@
 ## Hi. I am Zhenya
 
-### my story:
+### my story, sought and vision:
+---
 
 I'm born and grows in the garden on Earth. 
 
@@ -38,6 +39,25 @@ Our great common future,
 Rise by souls enpowered, turning away from hell
 
 Mutual understanding - most important science.
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
