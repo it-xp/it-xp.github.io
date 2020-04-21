@@ -3,24 +3,42 @@
 ### my story:
 
 I'm born and grows in the garden on Earth. 
+
 It's an amazing playce. With comfortable temperature,
+
 Between mountains and Sea, clean ecology, food is live health,
+
 Forests of junipper and cedar, 
 
+
 Between cultured and kind common people, 
+
 whose parks, attitude to nature, 
+
 Attitude to guests, to themselves, 
+
 as a spiritual art, 
 
+
+
 And we always so happy to other kind people
+
 We are just creatures
+
 We are do'nt understand Universe as well
+
 We are "little" Giants.
 
+
+
 And if each in humanity, find self kind and reasonable way
+
 Our great common future,
+
 Rise by souls enpowered, turning away from hell
-Mutual understanding most important science.
+
+Mutual understanding - most important science.
+
 
 
 You can use the [editor on GitHub](https://github.com/it-xp/it-xp.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
